@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently Working as  Seno\ior Infrastructure Lead<br>I am currently Experiencing  Cloud and Devops 
+I am currently Working as  Senoior Infrastructure Lead<br>I am currently Experiencing  Cloud and Devops 
 
 
 ## 🌐 Socials:
